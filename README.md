@@ -1,0 +1,1 @@
+# Mala-gesti-n-de-rcd
